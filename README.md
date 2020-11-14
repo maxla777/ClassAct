@@ -1,1 +1,1 @@
-# ClassAct
+# ClassAct My name is Max and I have a background in operations and supplychain managment. I want to shift careers and and join the technology sector. Fintech seems like an exciting place to be!
